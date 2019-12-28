@@ -1,4 +1,4 @@
-Bonjour le monde
+Bonjour le monde.
 Je vais vous faire découvrir Réal Fafard Inc.
 
 Je vous présente mes produits.
